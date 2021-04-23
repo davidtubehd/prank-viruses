@@ -1,4 +1,4 @@
-# prank-viruses
+# prank-viruse
 
 This virus dose not do any real harm.
 
