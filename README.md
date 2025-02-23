@@ -2,7 +2,7 @@
 
 This virus dose not do any real harm.
 
-I am not responsible for amy REAL HARM done to your pc/computer.
+I am not responsible for any REAL HARM done to your pc/computer.
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
